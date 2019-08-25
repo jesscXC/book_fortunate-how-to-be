@@ -191,9 +191,37 @@ Who knows?
 <br>
 (ty11.9.3d6s)
 <br>
+Who knows?
+
+The practice of the fool is scarcely effective, but it takes the wise among wise to know how to teach them.
+
+If the Mystery of reality wants to change them, only then will it occur.
+
+Consider the benefits; hold them in your mind.
+
+I can't announce for you a particular problem; all things run together synergistically.
+
+Oh, but wonderful luck to have such suffering, even with the good, no less.
+
+How can we be on better terms, except by complimenting each other's thoughtfulness?
+
+The tiniest prick of hurt erases your concerns of the long-term, scaring away the nebulous demons, like a cross to their unholy being.
+
+Oh, how quickly that pain erases the concerns by adding more immediate ones, while the long-term strategy of contemplation yields a less concrete result.
+
+Contemplation, reflection, shows a higher truth instead of the lower one. It removes obstacles instead of immediately tripping you.
+
+Yet this uncertainty created by freedom can never leave wholly.
+
+It's crazy though to be so concerned with the fruits of action.
+
+Give your senses and hopes to the Mystery as an offering of joy through service to a higher cause.
+
+
+Chapter 3
 ...
 
 
 
 
-(updated ty19.8.24.16.34.18pzm4d6s)
+(updated ty19.8.25.19.49.49pzm4d7s)
