@@ -2,7 +2,7 @@
 Fortunate: How to Be
 <br>
 devved by Jess Cummins
-
+NoLiesPlease.com
 
 Chapter 1
 <br>
@@ -190,7 +190,7 @@ Chapter 2
 Who knows?
 <br>
 (ty11.9.3d6s)
-<br>
+
 Who knows?
 
 The practice of the fool is scarcely effective, but it takes the wise among wise to know how to teach them.
@@ -217,11 +217,56 @@ It's crazy though to be so concerned with the fruits of action.
 
 Give your senses and hopes to the Mystery as an offering of joy through service to a higher cause.
 
+<hr>
 
 Chapter 3
 ...
 
+Chapter 4
+...
+
+<hr>
+
+Chapter 5
+<br>
+The Fun
+<br>
+(ty11.10.12d3s)
+
+How is it we let things into our daily schedules and they gradually take over our minds? Do we love too much?
+
+We must remove what is definitely less important, over and over until only the truly human and important is left.
+
+It can be hard to focus on the moment. It can be hard to take notice of the breathing, the sensations. Is it because it doesn't provide a direct benefit, the action isn't rewarded with fruit, with the closing of the feedback cycle?
+
+Like the monk mountain climbers, if you are enjoying the journey it will never be too hard---you will not give up.
+
+It's a big world we live in. There is much to see and do and learn.
+
+Where do you go, when you think no path holds the cure, only treatments?
+
+The general issues of life may need to be resolved by adherence to Mystery, but your life can be studied nonpersonally to understand yourself better. Is it pointless to undertake this task? No, you must live within yourself for the foreseeable future, so do not shy away from the experiment.
+
+It's so funny the lanes we go down, the things we believe are crucial.
+
+Enjoy the time while you're fascinated. It's always a fun time to have your imagination captured.
+
+Make your search not only for what is intriguing, but for what is profitable, what puts food in your belly. It's hard to think while hungry. It's hard to be happy while hungry. Not just in the sense of physically, but also spiritually, and in the sense of relationships and interesting work.
+
+Rich Hickey (of clojure.org) reminds that we need to be working on hard problems. Why? So life gets more interesting.
+
+We ease from food to factories, progressing into harder and harder territory, while also having all the advice of ancestors and explorers before us. We don't know what to do now, and they didn't then. With luck, Mystery guides us.
+
+The simulation we are in shows all doubt for naught, and regardless of the movie, regardless of the game, it _is_ fun to live.
+
+Nothing makes sense without context. The context is a story you repeat to yourself about what is important.
+
+What is important, friend? Whatever you want.
+
+I choose to believe because it's fun. Fun is what's important. Peace is also enjoyable.
+
+The light of the renunciation of the fruit of action is always present, if you consider it.
 
 
 
-(updated ty19.8.25.19.49.49pzm4d7s)
+(updated ty19.8.25.19.57.12pzm4d7s)
