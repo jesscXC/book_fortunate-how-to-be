@@ -268,5 +268,47 @@ I choose to believe because it's fun. Fun is what's important. Peace is also enj
 The light of the renunciation of the fruit of action is always present, if you consider it.
 
 
+Chapter 6
+<br>
+What is Important to You?
+<br>
+(ty11.10.30d7s)
 
-(updated ty19.8.25.19.57.12pzm4d7s)
+Why do happiness cycles sometimes seem so short-lived?
+
+I ponder my situation, how I feel trapped by my own greed, comfort, laziness. That upsets me even more, as if I don't have control over even the basic things. I know I do; I'm just afraid, afraid of success, of getting tied down and trapped more.
+
+This seems such a silly conundrum, such a first-world problem.
+
+How can you have more humility and perspective?
+
+How can you do something about the situation?
+
+Anything you learn and experience will be worth more in the long run than money.
+
+What is important to you? Do you just want to be happy, do you want inner peace, do you want to be rich, to make a difference in the world? How can you develop simple tastes?
+
+My concern is making a positive difference in the world. When I think I might fail to aid the world to the best of my abilities, I'm saddened, deeply. It ruins the day. I don't think it's something I can get over. I suppose if it's not meant to be, it won't.
+
+The problem it seems to me is losing a passion. Passion, regardless of the Gita, is much more fun than serenity. I've been crazy, and I've been serene. Craziness is more fun.
+
+The argument could be that passion is of the animal and not the human. If Mystery leads to the conclusion that passion is necessary for happiness, it seems a path that is prechosen.
+
+Stoicism may have some good points, but overall I am not convinced it leads to the most fun life.
+
+Passionate love seems to be a key element of a most-fun life.
+
+I don't know what I am. I don't know what I love, or what is important to me, or what invokes my passion. I just know what doesn't. A life where I don't try my hardest and make this the best world it can be, seems not a life worth living.
+
+The mind is so full of nuance that if you bow to it, it will find the proper course of action. The intuition somehow already knows what you need to do. Your task is to break free and follow it.
+
+I've never had my intuition lead down a path that was not the best in the long run.
+
+What is my end in life? To make the world a more fun place.
+
+How do you go about doing it? By always being genuine with yourself and others. Any problem you face should be put in this context.
+
+Are you making life more fun while being genuine?
+
+
+(updated ty19.8.25.20.02.37pzm4d7s)
