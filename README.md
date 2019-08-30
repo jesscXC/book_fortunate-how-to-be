@@ -2,13 +2,14 @@
 Fortunate: How to Be
 <br>
 devved by Jess Cummins
-NoLiesPlease.com
-
-Chapter 1
 <br>
+(NoLiesPlease.com)[http://noliesplease.com]
+
+
 Being Fortunate
 <br>
-(ty11.9.2d5s)
+Chapter 1 (ty11.9.2d5s)
+<br>
 
 I am fortunate.
 
@@ -185,11 +186,10 @@ When they are equally important, one's life---your life---can be more balanced a
 Or something?
 
 
-Chapter 2
-<br>
 Who knows?
 <br>
-(ty11.9.3d6s)
+Chapter (ty11.9.3d6s)
+<br>
 
 Who knows?
 
@@ -227,11 +227,10 @@ Chapter 4
 
 <hr>
 
-Chapter 5
-<br>
 The Fun
 <br>
-(ty11.10.12d3s)
+Chapter (ty11.10.12d3s)
+<br>
 
 How is it we let things into our daily schedules and they gradually take over our minds? Do we love too much?
 
@@ -268,11 +267,10 @@ I choose to believe because it's fun. Fun is what's important. Peace is also enj
 The light of the renunciation of the fruit of action is always present, if you consider it.
 
 
-Chapter 6
-<br>
 What is Important to You?
 <br>
-(ty11.10.30d7s)
+Chapter (ty11.10.30d7s)
+<br>
 
 Why do happiness cycles sometimes seem so short-lived?
 
@@ -309,6 +307,11 @@ What is my end in life? To make the world a more fun place.
 How do you go about doing it? By always being genuine with yourself and others. Any problem you face should be put in this context.
 
 Are you making life more fun while being genuine?
+
+
+<br>
+Chapter ...
+<br>
 
 
 (updated ty19.8.25.20.02.37pzm4d7s)
