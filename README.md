@@ -10,6 +10,7 @@ Being Fortunate
 <br>
 Chapter 1 (ty11.9.2d5s)
 <br>
+(uuid 4c85e209-3ede-47f5-a7f2-2ccdcffc34f5)
 
 I am fortunate.
 
@@ -190,6 +191,7 @@ Who knows?
 <br>
 Chapter (ty11.9.3d6s)
 <br>
+(uuid 4e4b027e-296c-42d3-8f18-69a1fc764f9e)
 
 Who knows?
 
@@ -219,18 +221,11 @@ Give your senses and hopes to the Mystery as an offering of joy through service 
 
 <hr>
 
-Chapter 3
-...
-
-Chapter 4
-...
-
-<hr>
-
 The Fun
 <br>
 Chapter (ty11.10.12d3s)
 <br>
+(uuid 420fd812-51ec-43b6-aa8f-92592a39789b)
 
 How is it we let things into our daily schedules and they gradually take over our minds? Do we love too much?
 
@@ -271,6 +266,7 @@ What is Important to You?
 <br>
 Chapter (ty11.10.30d7s)
 <br>
+(uuid d82f12b1-0db5-45f3-b17c-196eea6a94c4)
 
 Why do happiness cycles sometimes seem so short-lived?
 
@@ -312,6 +308,6 @@ Are you making life more fun while being genuine?
 <br>
 Chapter ...
 <br>
-
+(uuid f2728794-3555-4daf-8e46-5c59d4b56988)
 
 (updated ty19.8.25.20.02.37pzm4d7s)
