@@ -1,12 +1,13 @@
 
-Fortunate: How to Be
+# Fortunate: How to Be
 <br>
 devved by Jess Cummins
 <br>
 [NoLiesPlease.com](http://noliesplease.com)
 
+<hr>
 
-# Being Fortunate
+## Being Fortunate
 <br>
 (uuid 4c85e209-3ede-47f5-a7f2-2ccdcffc34f5)
 <br>
@@ -187,7 +188,7 @@ When they are equally important, one's life---your life---can be more balanced a
 Or something?
 
 
-# Who knows?
+## Who knows?
 <br>
 (uuid 4e4b027e-296c-42d3-8f18-69a1fc764f9e)
 <br>
@@ -221,7 +222,7 @@ Give your senses and hopes to the Mystery as an offering of joy through service 
 
 <hr>
 
-# The Fun
+## The Fun
 <br>
 (uuid 420fd812-51ec-43b6-aa8f-92592a39789b)
 <br>
@@ -263,7 +264,7 @@ The light of the renunciation of the fruit of action is always present, if you c
 
 <hr>
 
-# What is Important to You?
+## What is Important to You?
 <br>
 (uuid d82f12b1-0db5-45f3-b17c-196eea6a94c4)
 <br>
