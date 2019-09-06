@@ -6,11 +6,11 @@ devved by Jess Cummins
 (NoLiesPlease.com)[http://noliesplease.com]
 
 
-Being Fortunate
-<br>
-Chapter 1 (ty11.9.2d5s)
+# Being Fortunate
 <br>
 (uuid 4c85e209-3ede-47f5-a7f2-2ccdcffc34f5)
+<br>
+(ty11.9.2d5s)
 
 I am fortunate.
 
@@ -187,11 +187,11 @@ When they are equally important, one's life---your life---can be more balanced a
 Or something?
 
 
-Who knows?
-<br>
-Chapter (ty11.9.3d6s)
+# Who knows?
 <br>
 (uuid 4e4b027e-296c-42d3-8f18-69a1fc764f9e)
+<br>
+(ty11.9.3d6s)
 
 Who knows?
 
@@ -221,11 +221,11 @@ Give your senses and hopes to the Mystery as an offering of joy through service 
 
 <hr>
 
-The Fun
-<br>
-Chapter (ty11.10.12d3s)
+# The Fun
 <br>
 (uuid 420fd812-51ec-43b6-aa8f-92592a39789b)
+<br>
+(ty11.10.12d3s)
 
 How is it we let things into our daily schedules and they gradually take over our minds? Do we love too much?
 
@@ -261,12 +261,13 @@ I choose to believe because it's fun. Fun is what's important. Peace is also enj
 
 The light of the renunciation of the fruit of action is always present, if you consider it.
 
+<hr>
 
-What is Important to You?
-<br>
-Chapter (ty11.10.30d7s)
+# What is Important to You?
 <br>
 (uuid d82f12b1-0db5-45f3-b17c-196eea6a94c4)
+<br>
+(ty11.10.30d7s)
 
 Why do happiness cycles sometimes seem so short-lived?
 
@@ -309,5 +310,3 @@ Are you making life more fun while being genuine?
 Chapter ...
 <br>
 (uuid f2728794-3555-4daf-8e46-5c59d4b56988)
-
-(updated ty19.8.25.20.02.37pzm4d7s)
