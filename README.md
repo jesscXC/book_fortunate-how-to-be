@@ -3,7 +3,7 @@ Fortunate: How to Be
 <br>
 devved by Jess Cummins
 <br>
-(NoLiesPlease.com)[http://noliesplease.com]
+[NoLiesPlease.com](http://noliesplease.com)
 
 
 # Being Fortunate
