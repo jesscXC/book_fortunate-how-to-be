@@ -756,4 +756,87 @@ My choice is to be at peace.
 Sincerely,
 Jesse
 
+<hr>
+
+## Chapter ...
+<br>
+(uuid 8991f39f-7216-4912-865e-e0a930c86fd5)
+<br>
+(ty11.11.15d2s)
+
+O wise and glorious leader of actions, muse that turns the metaphysical cogs in my mind, help me, please, as I inquire as to your voice.
+
+For today in this hour I have a question.
+
+Being that I have elucidated what freedoms means to me, i.e. using my human to realize I need very little and putting my animal in fun life, help me now to realize what's stopping me from attaining it.
+
+One issue is that I don't know what I consider fun, another is the unprocessed emotions that tell me I need more things to be satisfied, another is that I feel like it's all up to me, instead of understanding faith and the role the environment plays in the peace I feel.
+
+For when I consider the things pressing on me, I become sad, yet when I consider how I have, do, and can press on the world around me, I become hopeful, joyous, encouraged.
+
+For it is when I bind my desires, my beliefs about what I need, that they each become less daunting, more real through virtue of ability to be attained.
+
+When I bind the ambition, then it serves its purpose and moves me to act.
+
+Too much ambition, too much concern about which of all the various interesting choices to make, and I become paralyzed and unhappy.
+
+Yes, these emotions of what is most interesting need to be processed, yet remember that there is so much good out there, so many good books to read and people to understand.
+
+No one says that you have to do anything worthwhile, become some superinfluential world changer.
+
+All that really matters is your perception of yourself.
+
+Are you doing what you have a passion for?
+
+Remember, nothing stops your will but your own acceptance of failure.
+
+And what is most important is that failure is defined by your definition of success, and that need not be at all relevant to anyone besides yourself.
+
+And think of this, there are more opportunities for growth where there are more people.
+
+You can do more, have more intimate connections, where there are more niches.
+
+Another aspect that is preventing me from having fun is my own confusion about what fun is for me.
+
+Fun is surely not feeling dependent on another, but it seems to be related to the immediate and delayed gratification issue.
+
+The delayed gratification is ultimately more satisfying, but you aren't sure when it is coming, so you feel more uneasy during it.
+
+Fun therefore can have various, and essentially incompatible, scales of desire.
+
+From the instant fun of cake to the long-term fun of having built a grand house with your own hands.
+
+And perhaps it is this second, delayed fun, that actually convinces you to keep going in the face of overwhelming coincidences threatening you with failure.
+
+Perhaps this is the point of a personal mission statement, a master plan.
+
+For it is by knowing your own long-term desires, your long-term considerations of what's important, and why they are important, and how you have progressed over time, that ultimately gives you the willingness to continue, the fortitude of endurance.
+
+And all good things take time, it's true.
+
+The deeper you go into life, the more you experience and the more fears you remember having conquered, the more associations you can draw from that tell you that you shouldn't give up, that you can still change and accomplish peace.
+
+The deeper you go the more you realize you actually can reach for the stars, you actually can grasp them.
+
+But you also have a tendency to become so focused, so laden in one dream, that if it shimmers or shatters you become sad and lose hope.
+
+But honestly it's not about any one dream, the more I think the more I realize it's about balancing all the myriad of different but equally loved dreams, that each come together to give more beauty to the world.
+
+Hakuna matata, and the more I think the more I feel there's no one _right_ answer, no perfect thing that you must do to be happy, successful.
+
+It is always and forever an unimaginable multitude of causes, each equally valid and powerful.
+
+Break anything down into its components and you will see that it is just chance.
+
+Freedom comes to you as your desire for worldly success lessens.
+
+Freedom to be at peace comes from the point by point breakdown of your true desires.
+
+I believe Mystery is a valuable concept, because sometimes, for no reason, life throws a brick in your face, and you still need to have faith.
+
+Sincerely,
+Jesse
+
+
+
 
