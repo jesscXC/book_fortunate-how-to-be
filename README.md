@@ -837,6 +837,51 @@ I believe Mystery is a valuable concept, because sometimes, for no reason, life 
 Sincerely,
 Jesse
 
+<hr>
+
+## Where can you be mindful most often of the beauty?
+<br>
+(uuid 98fbf23b-5fa6-4a08-ba89-7ad13b9046b0)
+<br>
+(ty11.11.16d3s)
+
+O greatest wizard of time, space, mind, and matter, please guide my thoughts, guide my pen, help me sustain. I face a question, and I ask of you, dear muse, to help me continue.
+
+Where can you be mindful most often of the beauty?
+
+It seems to be easy to grow accustomed to the beauty that surrounds us. It seems to be easy to take it for granted. Perhaps the cure is meditation, mindfulness as the skill and practice.
+
+You can feel the beauty all around, if you desire.
+
+You, until you've adopted your super-human technologies, are an animal living a strange life in an environment that evolution did not prepare you for.
+
+What I can offer is what works for me. In the past others have shared what works for them. There is much to glean from time-tested wisdom.
+
+How do you stay mindful in whatever space you find yourself in?
+
+Imagine closing your eyes. Are you still mindful of the good? Do you still vow to follow your heart and let the cards fall where they may?
+
+My animal says: "I guess. It seems kind of silly."
+
+Who are you, dear animal, and how can I help you? For we truly are one, inseparable, and if I must choose between 'human' or _animal_, I choose what gives birth to the other. I know our human-nature is fantasy, and I know the animal is the true joy inducer.
+
+My question, dear animal, coming from the human, is how may I help? How can I satisfy your dreams, wishes, desires for existence?
+
+I ask, "What is the point of all this?" and you answer with firm resolve all the benefits of nature, all the glories of existence.
+
+You are mindful most often of the beauty when your animal is grasping for a pleasure, a fun, a love, that your human has created, fashioned from material of both worlds.
+
+Where you do go? That is the wrong question.
+
+How do you create mindful beauty? That is the question to ask.
+
+The animal is old, and what always worked for it was many small steps with feedback. You can amplify that feedback if you use your powerful, ingenious creative human mind.
+
+Sincerely,
+
+Jesse
+
+
 
 
 
