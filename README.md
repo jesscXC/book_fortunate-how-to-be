@@ -552,6 +552,58 @@ Also my nostrils. Haha.
 
 Don't forget about me, bro. I really do like you the best of all.
 
+<hr>
+
+## Chapter ...
+<br>
+(uuid 7c293a4f-ed7b-478d-b7fe-d3b714bacb89)
+<br>
+(ty11.11.9d3s)
+
+I don't know where I'm going.
+
+I don't know where life is taking me. I don't know if I'm meant to be a programmer, a writer, an inventor, a scientist, or maybe a tutor.
+
+If even major life trauma, after three months, is back to normal, then I could change, over and over, never fearing that I can land on my feet, or at least get back up again. That's really an enheartening idea, if you catch my meaning.
+
+We aren't rocks that fall this way and that, but mammals that pull ourselves up by whatever means possible.
+
+We're like great machines that repair, and defend, and conquer, and advance into the world and spaces around us.
+
+What am I afraid of? Being afraid? That seems so circular, so self-contradictory. The truth is I'm afraid of more than that.
+
+I'm afraid of poverty, death, pain.
+
+I'm afraid of success, of change, even for the positive.
+
+I am in love with the future, perhaps to the detriment of the present.
+
+I don't know how others live. I only know my inner thoughts, and I try to see the deeper and deeper.
+
+It is in those mundane, private thoughts that truth is revealed, set bare against the sky and sand.
+
+It's not in hiding that we find ourselves. I pity the one who has not realized that, for they are truly lost.
+
+I don't know my dreams; I just watch them as they pass by in my mind. Yet here I am, pondering the mysteries, and deepening my love and awareness.
+
+Fundamentally I don't care what others think; I care about my own thoughts, and how deep they are, and how deep I can make them.
+
+I realize that complex things can be built from the vastly simple, that mind, life, and universe need not be unexplainable to still house mysteries for a simple consciousness.
+
+That is what I want to do---I want to become more: more conscious, more learnéd, more powerful. I don't care how much; I don't care how little.
+
+My concern is on the process itself; the end-goal is out of my hands; there are too many variables.
+
+I can always take the Zen approach, focusing only on the one task in front of me, not worrying about the rest. That's how you get things done while having an interesting time doing it. It's not about speed, efficiency, or even effectiveness.
+
+There is always more work that can be done. That is a state of life. There can always be more food, more children.
+
+If it doesn't add value to your life, to your existence, it's meaningless to pursue, pointless to do.
+
+Why do what you don't want, if it adds no value to your life?
+
+It's a good question.
+
 
 
 
