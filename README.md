@@ -306,8 +306,252 @@ How do you go about doing it? By always being genuine with yourself and others. 
 
 Are you making life more fun while being genuine?
 
+<hr>
 
-<br>
-Chapter ...
+## Chapter ...
 <br>
 (uuid f2728794-3555-4daf-8e46-5c59d4b56988)
+<br>
+(ty11.11.7d1s)
+
+It's interesting the chapters in life we play, how they flow one to another, how so many things come together in order to make any one particular moment.
+
+The question is, is there a way to live a more creative life, without succumbing to the harsh realities of the current world?
+
+I'm not sure that there needs to be some special purpose more than what you choose to give it.
+
+Really, it is hard, very hard, to sustain a thought in the face of so many other shiny things in life.
+
+Why do this, why do that, the world is full of things that take effort and things that draw away because they're simpler.
+
+And like I realized earlier yesterday, there doesn't _have_ to be any one thing that fulfills all of your desires in life.
+
+Obviously such a thing would have to be amazingly complex to satisfy all the diverse desires, and the only thing that sophisticated seems to be life itself!
+
+There's no shortcut, there's no magic bullet.
+
+It's interesting to think that intelligence and confidence are not equivalent.
+
+People don't look at them the same way.
+
+But if the question is impact, one must consider what precisely needs impacting.
+
+If it's general life evolution, human evolution, personal fulfillment and peace, these are all different.
+
+Of course, it may not even be impact that matters most, it may be just internal awareness.
+
+I question any posit, any giving of purpose to another without their consent, even yourself.
+
+It's internal detection, not invention.
+
+You don't tell yourself what you like, you do what you like and become more nuanced.
+
+Most of life seems this way, a subtle refining of what works and what doesn't.
+
+Yet sometimes one has a deep sense of confusion about something, ie not wanting to do it, work on it, or even think about it.
+
+Could this be somewhat embarrassment?
+
+My question is, why does one get stuck at a point in a project?
+
+Ah, how life works out.
+
+It's all in your head, friend, don't forget that.
+
+Things matter because you make them matter, you believe they matter.
+
+It's true what they say, home is where the heart is, and all you need is a little food and a place to lay your head.
+
+When things aren't going your way, get up and change them, that is what video games and life teach us.
+
+And while some things may be out of your control, other things are not.
+
+Focus on the circle of influence, as Stephen Covey says.
+
+I do believe we all have thoughts and abilities the world needs and would be better with, and I think I am capable.
+
+The hard question, the question I really don't have an answer to, yet, is what I should be doing with my skills, my knowledge, my abilities.
+
+It's hard to say to do this or do that when I can't even figure out what I want, when I can't follow even my advice from my autobiography.
+
+It's that disconnect, maybe, between the familiar and unfamiliar.
+
+Even if you know what to do, it's still hard to do it, to pull through and do the work.
+
+Yet I do think as we push we get stronger.
+
+It's interesting to realize the sadness, the grief, is really the last stage of concern.
+
+After it passes there is a new hope, one based less on making the past better but on opening the doors for the future.
+
+I definitely think that one will push and push while they have something to live for, be it Steve Jobs, Thomas Jefferson, etc.
+
+It makes sense, that it hurts to die, hurts to give up, but it tends to be hopeless anyway, however when you can do a final act of good for the world, that is when you push and don't give up.
+
+On a certain level, now we must give up, give up the pretenses of life and society that sadden our deepest core.
+
+For example, Up really made me weep, seeing the boy and girl live out a life, a good life, but nonetheless different from their childhood dreams of exploration, made me sob deeply.
+
+Am I a failure in that same regard?
+
+Have I made promises that I have not kept?
+
+One insight from the movie was that after he accomplished his dream, finally, he could move on to a more timely one.
+
+He fulfilled his obligation to his wife, then to the boy he was with.
+
+He made peace with the past, he considered it resolved, and let it float away.
+
+That's the point of all this thinking, this confusion, this haze that torments my being and happiness.
+
+It's no easy thing to move forward, to untether with the past, to believe the future can be even more magnificent than you could even truly imagine.
+
+It's hard, and it's undoubtedly the way forward.
+
+All of my recent experimentation with untethering from my past has lent me that insight.
+
+And in that regard, though I still undoubtedly feel tied down, I have had my burdens lifted.
+
+It's not simply by canceling the want that it goes away, because it really doesn't if that's all you do.
+
+It takes deep soul searching and slow processing to cut through the cruft and let the beautiful core shine out.
+
+Believe me, you can't really cut out something that will help you.
+
+It will always resurface if it's a good idea, and if it's not then you wouldn't use it even when you go back and look through the past.
+
+What does it add to you, now, to look back and see how you have changed, where you have come from?
+
+What do you actually need, do you need any creation of yours?
+
+What of it actually increases your utility now or in the foreseeable future?
+
+When it comes down to it, I realize I can renounce my past, the things I used to care about but no longer do.
+
+This isn't a prison, this is whatever you want.
+
+I don't have to keep doing something just because I've done it a long time, or care about something just because it's an old joy.
+
+I am young, but honestly I expect to always be so.
+
+Young doesn't mean less wise, smart, knowledgeable.
+
+Perhaps it means less experienced, but young can also mean more able to adapt.
+
+Honestly, I do love my life, what I've experienced, who I am.
+
+I can't think of someone I'd more rather be.
+
+I'm confident in myself, I'm not as worried about what others think as some, I'm iconoclast and revolutionary and insightful.
+
+That's how I feel least.
+
+I like being me.
+
+Even when I think about the rich and famous, I can't think of any one of them I'd rather switch places with.
+
+Huh.
+
+That certainly puts things in perspective, when I like myself better than I like them.
+
+Would I like parts of them, like the intelligence of one, wisdom of another, nonchalance of the third, friendliness of the fourth?
+
+Sure, but I don't see how that's an option.
+
+I like being me, I like the overall package.
+
+Overall I'd rather have the higher level of human fun than that animal level of fun, though it is enticing.
+
+It's enticing because it's easier, but it doesn't take you as high, in the long-run.
+
+And the long-run is where we all end up.
+
+It's a balance.
+
+You are still a human animal, you do still have emotions and they do, believe it or not, serve a purpose.
+
+There are few who I have read and felt like I could experience consistent gains from their thoughts, Emerson is one.
+
+Yet, I suppose there are more, if I widen the search to be implications of their thoughts, so I could recognize and understand the tropeyness of their being.
+
+But I too am a trope, and I wish I knew what it was so I could follow it faster.
+
+Perhaps that's the trope, a man, promising, but who constantly questions where he is going.
+
+I can't bring to mind a story with him, but it feels somehow familiar, like from an Indian tale.
+
+Yeah, it bothers me that someone would suggest meaning of life questing to be fruitless or irrelevant.
+
+That seems like it sets you up for failure later in life.
+
+However there is a point that can be gleaned from it, that young man has suppositions about life that often fail to turn out accurately.
+
+Yet I have known many young and old people, all through the years, and I must admit I look at all people through that filter of the brevity and confinedness of life.
+
+Just because you're older than me doesn't make you right.
+
+There are older people than you, dead men's writings even, and they aren't all right.
+
+And no matter what you've experienced, there is always more to experience.
+
+I think the Dalai Lama was right in suggesting that the country places too much value on intelligence and not enough on heart.
+
+It seems an important facet of human life, existence, and happiness.
+
+For no matter your intelligence you can't invent yourself happiness unless you grow and deepen your heart.
+
+And how is that done, how does one care more deeply, while also untethering from the things one no longer cares for?
+
+Perhaps it must be stepping back from the process that brought you to need to untether in the first place.
+
+That constant need, really a want, to get more things to show that love.
+
+Everything seems so simple in retrospect, doesn't it?
+
+It's hard to vividly feel the confusion when looking back, even though in real time it's quite difficult, and many other things are pressing on your attention at the same time.
+
+I know, like I tell my kids, I can't answer the questions for you or you won't learn.
+
+It's really that simple.
+
+If you want to be better, you have to build new connections, and that's never really easy.
+
+Even doing mental pushups with Mathematics only lightens the load when solving more relevant problems, you can _never_ eliminate it.
+
+To eliminate struggle is to make life meaningless.
+
+It's the problems we have, the dangers we overcome, that make life more fun and meaningful.
+
+It's hard going through it, yes.
+
+No, really, it's a bitch.
+
+I don't think there is any way to get around that without also diminishing the good times.
+
+Honestly, I've tried it.
+
+Sure, it sucks right now, but you've seen how good it can be.
+
+I remember how it was.
+
+It wasn't bad, but the highs were octaves lower.
+
+There was perhaps a one octave difference between total high and low, whereas now it is more like five octaves, and overall, honestly, I think it's higher now.
+
+Sure, I'm more sensitive to my feelings, so it feels like wild swings, but overall I think it's higher.
+
+And no one is going to argue that you should say what you said before, because you were wrong, and it was a long time ago.
+
+Honestly I haven't thought much about how I got on that track, but I'm glad that I'm off it.
+
+It really is a balance thing, you can't go too far on any one track if the other trains aren't with you or you go off the deep end.
+
+I think I know, now, but I'll keep my eyes and ears and tongue and fingers open.
+
+Also my nostrils. Haha.
+
+Don't forget about me, bro. I really do like you the best of all.
+
+
+
+
