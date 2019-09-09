@@ -604,6 +604,78 @@ Why do what you don't want, if it adds no value to your life?
 
 It's a good question.
 
+<hr>
+
+## Chapter ...
+<br>
+(uuid 6bcc3458-9b48-4e7b-8bae-efec59003eb2)
+<br>
+(ty11.11.13d7s)
+
+O grand and beautiful mind above matter, help me now as I contemplate my small segment of your majestic existence.
+
+Now I contemplate a question of deep importance: even with all your flaws, who do you like more?
+
+I like my humor, I like my skills and knowledge, I like my tastes, my body, my memories. I like my preferences.
+
+Who is another to say to me they are better than me? It may be so for them, but only in certain regards is it so for me.
+
+I may like a particular aspect of them---perhaps their outgoing nature, or cheerfulness, or peace, or intellect, or skill---but I would rather have my combination of attributes, if push came to shove.
+
+While they are beautiful, deep creatures, I prefer my own style of deepness.
+
+I am fortunate to realize this, for it is a pity to not love yourself. And honestly, I do love myself. I love myself most of all, more than any other creature, at least any particular one.
+
+Even my delusions give me hope; they show me my own frailty and so emphasize my own beauty and strength and wealth within me.
+
+Is not wealth the output of your personal creativity? Are you not rich when you can imagine new realities? That seems far preferable to the richness of only physical things.
+
+In developing your imagination, are you not made richer? Is not the beauty always inside you, therefore? It's not dependent on a physical entity except your own brain and the love that you can produce with it by using your imagination.
+
+This doesn't seem to be an issue of disagreement; there isn't much emotion on this question, this topic.
+
+So instead let me rephrase the question: what are your flaws, why do you have them?
+
+One flaw is being afraid to sell, being afraid to go out there and feel confident.
+
+I think it comes from an aversion to rejection, but I know I can choose not to experience that. For example, during a speech for Toastmasters where I hadn't reviewed my notes nor slept well, I realized while standing up there and fumbling pretty hard that I had nothing to worry about even if I totally bombed. That's refreshing to know, because it keeps you from taking yourself so seriously that you freeze up and can't flow at all.
+
+I flowed to the best of my ability, however much that was under the circumstances.
+
+Another flaw is not being able to put in the hard work, of acting and acting and building and building and then becoming overwhelmed. Then the feeling of too much prevents you from doing the important and instead you change focus to the urgent.
+
+Well, let me ask this.
+
+If you stopped totally when you became overwhelmed, put aside all chores besides eating and sleeping, and instead did one task, what would it be?
+
+I think the best might be to practice metacognition, considering what you really want and need.
+
+Thinking about everything at once is a recipe for inaction.
+
+To get things done you have to simplify your mind, break out of the hold of daily living.
+
+As in Siddhartha, you can practice thinking, waiting, and fasting.
+
+It is true that very few things are necessary for your joy and happiness.
+
+You could read all the old masterpieces of the world and you would never run out of wondrous ideas.
+
+But it's not solely an input process: it is also equally an output.
+
+You cannot just read---you must write. And you cannot just write---you must create.
+
+It's by taking the process seriously that you make progress.
+
+It's by seeking to know thyself that one can hone in on the profitable ideas.
+
+So when you become overwhelmed, first breathe.
+
+Then take a step or two back and ask what you really want and why.
+
+Know thyself, sweet one.
+
+Love,
+Jesse
 
 
 
