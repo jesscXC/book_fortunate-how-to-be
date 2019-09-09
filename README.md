@@ -677,5 +677,83 @@ Know thyself, sweet one.
 Love,
 Jesse
 
+<hr>
+
+## Chapter ...
+<br>
+(uuid 42ef9ad8-564d-456f-8691-2c56ff26f68e)
+<br>
+(ty11.11.14d1s)
+
+O great and wise controller of the simulation, please see fit to grant my tongue and mind fluidity of thought as I break apart the issues I face into their subcomponents.
+
+For here I am today, laying in a swinging hammock, looking up at the trees and sky, watching the leaves tumble through the air.
+
+And my question for today is, what do you consider freedom?
+
+And as I watch the bug fly through the air and the bird in the tree, I think of my humble ape self, concerned about such a topic.
+
+And I realize as I see a bird flit from tree to tree that humans really have the most freedom.
+
+For while I am fundamentally an ape I can also aspire to be greater than other animals, greater than any animal, man or beast, and live a more fun and free existence.
+
+Freedom is the ability to choose.
+
+The bird cannot choose to not work.
+
+The wolf must hunt to eat.
+
+Not only that, but the way they hunt and live is almost entirely under the control of their genes, they seldom devise and spread new ideas.
+
+So if freedom is about choice, what would you choose with your freedom?
+
+That seems a relevant question, one often brought to my attention but not fully explored.
+
+My typical response would be that is not just personal choice I want but the fruit of other people's choice as well.
+
+And in some regards that's valid, but you can't solve the world's problems without first solving your own.
+
+Personal freedom for me would be pushing myself into an environment where the beauty is overwhelming, my needs are satisfied by myself and I am producing excellent work and finding a meaning in life.
+
+And indeed, slowly slowly, I feel I am making progress on this dense and nebulous task.
+
+For only just recently did I truly grok that all I really need is a little food to eat and a place to lay my head and sleep.
+
+For it seems that when you really let yourself be, free from worry and concern, free from longings and wants and desires, that is when you can truly rest easy.
+
+That is when you truly become satisfied.
+
+It's not when you have wants fulfilled that you become satisfied, but when you let go of your concern and desires in the first place, that's when your body begins to heal itself from the inside-out.
+
+For it's about making your mind still and letting the urgent but unimportant flow away, drift off into irrelevance.
+
+Like all things, it's by giving up the dream of what you think you want that you discover what you really want.
+
+Are you fine with having no creative output?
+
+Yes, because you know you enjoy the creative input just as much, albeit in a different way.
+
+You have to analyze how you feel, but when you are doing so you must use your intuition and heart to tell you what to analyze.
+
+You have to put yourself in the position where you go with the flow.
+
+Otherwise, being still an ape and animal, you will succumb and be distracted by the immediately gratifying things, even though they don't help you sleep easy at night.
+
+So what is freedom to you?
+
+It's to use my human to put my animal in fun life.
+
+It's to realize that I need very little.
+
+It's to acknowledge I am naked at birth and in moments of creation.
+
+Freedom is choice.
+
+My choice is to be satisfied.
+
+My choice is to be at peace.
+
+Sincerely,
+Jesse
 
 
