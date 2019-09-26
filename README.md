@@ -9,7 +9,7 @@ devved by Jess Cummins
 
 ## Being Fortunate
 <br>
-(uuid 4c85e209-3ede-47f5-a7f2-2ccdcffc34f5)
+(uuid_4c85e209-3ede-47f5-a7f2-2ccdcffc34f5)
 <br>
 (ty11.9.2d5s)
 
@@ -190,7 +190,7 @@ Or something?
 
 ## Who knows?
 <br>
-(uuid 4e4b027e-296c-42d3-8f18-69a1fc764f9e)
+(uuid_4e4b027e-296c-42d3-8f18-69a1fc764f9e)
 <br>
 (ty11.9.3d6s)
 
@@ -224,7 +224,7 @@ Give your senses and hopes to the Mystery as an offering of joy through service 
 
 ## The Fun
 <br>
-(uuid 420fd812-51ec-43b6-aa8f-92592a39789b)
+(uuid_420fd812-51ec-43b6-aa8f-92592a39789b)
 <br>
 (ty11.10.12d3s)
 
@@ -266,7 +266,7 @@ The light of the renunciation of the fruit of action is always present, if you c
 
 ## What is Important to You?
 <br>
-(uuid d82f12b1-0db5-45f3-b17c-196eea6a94c4)
+(uuid_d82f12b1-0db5-45f3-b17c-196eea6a94c4)
 <br>
 (ty11.10.30d7s)
 
@@ -310,7 +310,7 @@ Are you making life more fun while being genuine?
 
 ## Chapter ...
 <br>
-(uuid f2728794-3555-4daf-8e46-5c59d4b56988)
+(uuid_f2728794-3555-4daf-8e46-5c59d4b56988)
 <br>
 (ty11.11.7d1s)
 
@@ -556,7 +556,7 @@ Don't forget about me, bro. I really do like you the best of all.
 
 ## Chapter ...
 <br>
-(uuid 7c293a4f-ed7b-478d-b7fe-d3b714bacb89)
+(uuid_7c293a4f-ed7b-478d-b7fe-d3b714bacb89)
 <br>
 (ty11.11.9d3s)
 
@@ -608,7 +608,7 @@ It's a good question.
 
 ## Chapter ...
 <br>
-(uuid 6bcc3458-9b48-4e7b-8bae-efec59003eb2)
+(uuid_6bcc3458-9b48-4e7b-8bae-efec59003eb2)
 <br>
 (ty11.11.13d7s)
 
@@ -681,7 +681,7 @@ Jesse
 
 ## Chapter ...
 <br>
-(uuid 42ef9ad8-564d-456f-8691-2c56ff26f68e)
+(uuid_42ef9ad8-564d-456f-8691-2c56ff26f68e)
 <br>
 (ty11.11.14d1s)
 
@@ -760,7 +760,7 @@ Jesse
 
 ## Chapter ...
 <br>
-(uuid 8991f39f-7216-4912-865e-e0a930c86fd5)
+(uuid_8991f39f-7216-4912-865e-e0a930c86fd5)
 <br>
 (ty11.11.15d2s)
 
@@ -841,7 +841,7 @@ Jesse
 
 ## Where can you be mindful most often of the beauty?
 <br>
-(uuid 98fbf23b-5fa6-4a08-ba89-7ad13b9046b0)
+(uuid_98fbf23b-5fa6-4a08-ba89-7ad13b9046b0)
 <br>
 (ty11.11.16d3s)
 
